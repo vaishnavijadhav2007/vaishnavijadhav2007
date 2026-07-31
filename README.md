@@ -1,4 +1,4 @@
-# Hi there, I'm Vaishnavi Jadhav 👋
+# Hi there, I'm Vaishnavi!!
 
 ## 💻 About Me
 
